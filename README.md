@@ -17,3 +17,4 @@
 печален он и болен!<br>
          ## Ссылка на сайт с красивыми фотками ночи!
          [Ночная красота](https://ya.ru/images/search?text=Ночное%20Небо&nl=1&source=morda)
+[лучшие гача игры](https://cq.ru/articles/gaming/15-luchshikh-gacha-igr-dlia-pk)
